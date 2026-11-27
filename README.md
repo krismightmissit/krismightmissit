@@ -42,8 +42,6 @@ Please interact if you need a friend to talk to.
     <summary>Pony Town, DNI,IWC,IWEC</summary>
     <br>
 
-  Please do NOT interact if you're a proshipper, darkshipper, toy shipper, tag shipper, cradle shipper, twincest, cargo shipper, ect. Also, if you're racist please DNI.
-
   IWEC if you're homophobic. I mean, it's fine if you don't support it but like..if you're just rude about it. That's a whole different level.
 
   IWEC if you're transphobic. Again, I don't care if you don't support, but don't be rude to someone about it. Yes, I don't fuck with changing your gender. But it's not like I'm gonna be rude or close them out just because of it.
@@ -51,6 +49,8 @@ Please interact if you need a friend to talk to.
   IWC if I have Dniuf,Dniucf,or it says something like, "Not in the mood." or some shit like that. I will probably just respond saying "DNI" and if you keep doing it then I'll hide you for 15 or block you.
 
   DNI if you copy skins, troll people, or cover them for fun. It's not funny it's just plain out rude and annoying.
+
+  I don't really think I have to put anything else in here, but if I do, I most definitely will.
   </details>
 </div>
 
